@@ -1,7 +1,2 @@
-this is chandan messi ok
-rcb
-vvvv
-ddd
-hh
-jj
-rcb
+this is chandan messi of
+football player
